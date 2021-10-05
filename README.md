@@ -6,3 +6,6 @@ Wild Ace#5446
 
 # Help?
 Any issues, dm me
+
+# Links
+https://github.com/BeastGB/MONKEUTILS-LETSS-GOOO/releases
