@@ -9,3 +9,4 @@ Any issues, dm me
 
 # Links
 https://github.com/BeastGB/MONKEUTILS-LETSS-GOOO/releases
+https://mega.nz/folder/OvoHBILK#vr3shm11yYM-m6boU72p3g (mod folder)
